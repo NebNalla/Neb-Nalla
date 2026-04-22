@@ -1,2 +1,7 @@
-# Neb-Nalla
-Bens personal repository
+# About Me
+## Bens personal repository
+### for Persona Neb Nalla
+🪬
+♊
+☯
+🇳🇿
